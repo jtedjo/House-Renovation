@@ -1,1 +1,3 @@
-List as many renovations idea as you can. 1… 2… 3… GO!
+List as many renovations idea as you can. 1â€¦ 2â€¦ 3â€¦ GO!
+
+fireplace, tile rooftop, marble bathroom
